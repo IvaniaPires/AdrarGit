@@ -1,3 +1,0 @@
-# AdrarGit
-dghgdh
-gyhfhfh
